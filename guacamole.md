@@ -5,6 +5,7 @@ Ingredients:
 - 2 tsp salt
 - jalapeño to taste
 - cilantro to taste
+- don't forget the chips!
 
 Instructions:
 - cut and mash avocados
